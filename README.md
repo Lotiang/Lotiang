@@ -42,6 +42,10 @@ instructions for setting up groups stages for the tournament
 
 *the kick off will on 17 of november 2021*
 
+## *budgeting for the tournament*
+
+*winners to be awarded training skitz*
+
 
 
 
